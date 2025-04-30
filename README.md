@@ -1,6 +1,6 @@
 # Hi there, I'm Senelor K. Sebuava! 👋
 
-![Banner Image](your_banner_image_url_here)
+https://drive.google.com/file/d/1jlOIjWwRz7OBSW3GfETtBJ9VGtQV9Xad/view?usp=sharing
 
 ## About Me 🚀
 
