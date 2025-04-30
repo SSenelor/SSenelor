@@ -1,7 +1,5 @@
 # Hi there, I'm Senelor K. Sebuava! 👋
 
-https://drive.google.com/file/d/1jlOIjWwRz7OBSW3GfETtBJ9VGtQV9Xad/view?usp=sharing
-
 ## About Me 🚀
 
 I'm a passionate IT Support with experience in administration, Web development, social media management and virtual assistance. I love tackling complex problems, learning new skills, and collaborating with diverse teams to create innovative solutions.
